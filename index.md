@@ -1,1 +1,1 @@
-read README: [[README]]
+Salom, ushbu sahifani Telegramdagi kanalim alternativi sifatida ochdim. Bu yerda ham kunlik hayotimni yoritib boraman. 
